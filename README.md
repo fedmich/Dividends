@@ -7,8 +7,8 @@ Website: https://dividends.earningsahead.com
 
 Past Weeks
 
-Latest - https://twitter.com/dividends_ea/status/1670694127787278337
-Jun 11 - https://twitter.com/dividends_ea/status/1667799202892505088
+- Latest - https://twitter.com/dividends_ea/status/1670694127787278337
+- Jun 11 - https://twitter.com/dividends_ea/status/1667799202892505088
 
 ---
 
